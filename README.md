@@ -1,8 +1,6 @@
-![1584023795](https://user-images.githubusercontent.com/22393665/110993248-56783f00-8377-11eb-9b6f-23bb720e8368.jpg)
-
 ### Hi there 👋! My passions: 💻 🏛️ 🗺️ 🍺
 
-![tumblr_outwxnanpp1u79o2lo1_1280](https://user-images.githubusercontent.com/22393665/110991054-69d5db00-8374-11eb-9028-6817eca65d07.gif)
+![1584023795](https://user-images.githubusercontent.com/22393665/110993248-56783f00-8377-11eb-9b6f-23bb720e8368.jpg)
 
 
 
