@@ -1,7 +1,7 @@
 
 ### Hi there 👋!
-![1539549407_cyberpunk-codes](https://user-images.githubusercontent.com/22393665/110990495-b0770580-8373-11eb-9f0b-cc08245eb884.gif)
-![alt text](https://user-images.githubusercontent.com/22393665/110989187-cbe11100-8371-11eb-82d4-12d818402c24.jpg)
+![tumblr_outwxnanpp1u79o2lo1_1280](https://user-images.githubusercontent.com/22393665/110991054-69d5db00-8374-11eb-9028-6817eca65d07.gif)
+
 
 - 📫 How to reach me: email: f.renai1996@gmail.com
 
