@@ -1,7 +1,7 @@
-# 💫 About Me:
-SOTWARE DEVELOPER<br>
-HOBBIES: 💻 🏛️ 🗺️ 🍺<br>
-
+# 👨‍💻 About Me:
+Bachelor's degree in computer science in Pisa 🎓<br>
+Software developer 💻<br>
+Hobbies: 🏛️ 🗺️ 🍺<br>
 
 ## 🌐 Socials:
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/filippo-renai) 
